@@ -1,4 +1,4 @@
-#  
+#  no-ban Script for aura ascension is the best aura ascension Script, featuring god mode and fly. Safe and powerful for all your needs.
 
 
 
